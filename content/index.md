@@ -1,0 +1,3 @@
+Many teenagers love work. Most for the money - their most scarce resource - or just for the experience so they can add it to their CV. 
+I also love work. I don't love work for the money as much as I love it for its system Work makes an employee feel a need to be responsible. It enables you to maximize your efforts for a long time of your day and, usually, it makes you feel exhausted at the end of the day. Once you come home at 6 pm you usually get a small rest then... what do you do then?
+I like to think of this time as your 2nd shift time. Instead of working for money, though, you are working for yourself.  Are you going to watch a movie? Are you going to play a video game or read a book? Its up to you, but be sure to think of the outcome of your efforts.
