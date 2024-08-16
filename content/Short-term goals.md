@@ -1,5 +1,0 @@
-- [ ] Make a Quartz site
-- [x] Prepare notes for Java
-- [ ] Fix up obsidian notes for quartz
-- [ ] Make a sub-domain for the project
-- [ ] Macros for passwords
